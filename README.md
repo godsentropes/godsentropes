@@ -1,6 +1,6 @@
 <div align="center">
   
-<a href="https://youtu.be/VdNRqOMaH68"><img src="https://files.catbox.moe/4oq7j4.jpg" alt="Red banner" width="700" title="ic: colorbah"></a>
+<a href="https://youtu.be/VdNRqOMaH68"><img src="https://files.catbox.moe/4oq7j4.jpg" alt="Red banner" width="700"></a>
 
 <img src="https://readme-typing-svg.herokuapp.com?font=Silkscreen&pause=1000&color=9F0E19&center=true&width=435&lines=what+would+i+need+friends+for;when+i+got+this%3F" alt="Typing SVG" title="I thought we were friends." /></a>
 
