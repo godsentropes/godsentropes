@@ -17,7 +17,7 @@ Hi i'm tord.
   
 he/him . only
   
-DNI if -15, radqueer, fakeclaimer. Otherwise, i block freely.
+DNI if -15, radqueer, fakeclaimer, TBATF fans. Otherwise, i block freely.
 
 I don't express tone through text often, so please bear with me. But i'm a very enthusiastic guy.
 
