@@ -11,3 +11,17 @@
 <img src="https://files.catbox.moe/di0svx.png" alt="todd image" title="The Red Army wants you to join!" width="230"></a>
 <img src="https://files.catbox.moe/amdxdl.png" title="Paradise has got a spot for me." alt="tord image" width="350" align="left"></a>
 <br clear="left"/>
+
+<div align="center">
+Hi i'm tord.
+  
+he/him . only
+  
+DNI if -15, radqueer, fakeclaimer. Otherwise, i block freely.
+
+I don't express tone through text often, so please bear with me. But i'm a very enthusiastic guy.
+
+I'm always free c+h, i don't really care.
+
+<div align="center">
+<img src="https://s7.ezgif.com/tmp/ezgif-7c08331cc217b3f7.webp" width="700" alt="Tord divider" align="center">
